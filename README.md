@@ -1,5 +1,5 @@
--  👋 Hi, I’m @olufolaolubunmi
--  My name is Olufola OLUBUNMI, a graduate of ADEKUNLE AJASIN UNIVERSITY,studied Physics Electronics
+ -  👋 Hi, I’m @ OlufolaOlubunmi
+-  My name is Olufola OLUBUNMI, a graduate of ADEKUNLE AJASIN UNIVERSITY,studied Physics Electronics.I formely worked with an Electricity distribution company and I served as a Safety officer
 - 👀 I’m interested in Acquiring new skills in Tech
 - 🌱 I’m currently learning EXCELL,POWER BI,SQL
 - 💞️ I’m looking to forward to learning more about analytics skills and collaborating with tech minded persons in order to add more value to the tech industry
