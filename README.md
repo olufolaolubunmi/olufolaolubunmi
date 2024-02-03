@@ -3,9 +3,9 @@
 - 👀 I’m interested in Acquiring **new skills in Tech**
 - 🌱 I’m currently learning **EXCELL**,**POWER BI**,**SQL**
 - 💞️ I’m looking to forward to learning more about analytics skills and collaborating with tech minded persons in order to add more value to the tech industry
-- 📫 How to reach me http//www.facebook.com/olufola.mesholubunmi?mibextid=ZbWKwl
+- 📫 How to reach me [facebook](http//www.facebook.com/olufola.mesholubunmi?mibextid=ZbWKwl)
 - 😄 Pronouns:He/Him
-- ⚡ Fun fact: I LOVE READING , TRAVELLING and HELP THE NEEDY
+- ⚡ Fun fact: I LOVE READING , TRAVELLING and HELP THE NEEDYhttp//www.facebook.com/olufola.mesholubunmi?mibextid=ZbWKwl
 
 <!---
 olufolaolubunmi/olufolaolubunmi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
