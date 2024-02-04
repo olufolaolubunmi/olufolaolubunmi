@@ -3,7 +3,7 @@
 - 👀 I’m interested in Acquiring **new skills in Tech**
 - 🌱 I’m currently learning **EXCELL**,**POWER BI**,**SQL**
 - 💞️ I’m looking to forward to learning more about analytics skills and collaborating with tech minded persons in order to add more value to the tech industry
-- 📫 How to reach me [facebook](http//www.facebook.com/olufola.mesholubunmi?mibextid=ZbWKwl) [Twitter](https://x.com/olubunmiof68464?t=s9pkGjma2gRk_ZC2UNmFEQ&s=07)
+- 📫 How to reach me [facebook]((https://www.facebook.com/olufola.mesholubunmi/) [Twitter](https://x.com/olubunmiof68464?t=s9pkGjma2gRk_ZC2UNmFEQ&s=07)
 - 😄 Pronouns:He/Him
 - ⚡ Fun fact: I LOVE READING , TRAVELLING and HELP THE NEEDY
 
